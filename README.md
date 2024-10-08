@@ -73,3 +73,6 @@ A driven and results-oriented Computer Science Engineering graduate with a speci
 ## Activities & Interests
 
 - **Hobbies:** Stand-Up Comedy, Cooking, Singing
+![WhatsApp_Image_2024-09-13_at_18 20 38_27928255-removebg-preview (1)](https://github.com/user-attachments/assets/2a727fff-6a5e-48f7-a469-5e41d86534ea)
+
+
